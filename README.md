@@ -1,4 +1,4 @@
-## 𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!
+## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 <!--
 **SK8IN2/SK8IN2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
