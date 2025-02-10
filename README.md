@@ -13,4 +13,4 @@
  ☆  If I could be an animal that isn't human (yes, humans are animals), I'd be the legend from the ancient Greeks and Egyptians, a Phoenix.
 
 𝓡𝓪𝓷𝓭𝓸𝓶:
-☆  2:50-3:17 [The emotion I wish I could display](https://youtu.be/MtUlSXtvI88?si=DGUEnNtSDPIjmGxp) the dancing is the part I let out though lmao 😭
+☆  2:50-3:17 [The emotion I wish I could display](https://youtu.be/MtUlSXtvI88?si=DGUEnNtSDPIjmGxp) - the dancing is the part I def let out lmao 😭
