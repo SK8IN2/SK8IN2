@@ -13,4 +13,4 @@
  ☆  If I could be an animal that isn't human (yes, humans are animals), I'd be the legend from the ancient Greeks and Egyptians, a Phoenix.
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "I said I would never fall in love again until I found 𝒽𝑒𝓇"
+☆  "I said I would never fall in love again until I found 𝒽𝑒𝓇"  ☆
