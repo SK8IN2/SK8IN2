@@ -19,7 +19,8 @@
 ☆  "I said I would never fall in love again until I found 𝒽𝑒𝓇"  ☆
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
-![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55)
+![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![0178-mikuwink2](https://github.com/user-attachments/assets/a6c4fed2-38b3-4ecb-b83b-1bad4b11e899) 
+
 ![12129512_cd970](https://github.com/user-attachments/assets/40645ca4-3dbf-446b-9667-8b2086696864)
 
 
