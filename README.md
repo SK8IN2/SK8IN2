@@ -18,5 +18,7 @@
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  "I said I would never fall in love again until I found 𝒽𝑒𝓇"  ☆
 
-![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496)
+![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![g24](https://github.com/user-attachments/assets/5bd12a4d-af04-4a30-9687-85030bceaf0d)
+![tumblr_p4j09gMicR1tganp7o3_250](https://github.com/user-attachments/assets/037a6ea3-6b99-494e-845e-259eb4f659a6)
+
 
