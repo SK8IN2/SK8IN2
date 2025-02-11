@@ -16,7 +16,7 @@
 
  ☆  If I could be an animal that isn't human (yes, humans are animals), I'd be the legend from the ancient Greeks and Egyptians, a Phoenix.
 
- ☆  I'm waiting to see her rn
+ ☆  Waiting to see 💌 her 💌 rn
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
