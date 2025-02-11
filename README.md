@@ -6,7 +6,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), 𝒶𝓃𝒹 𝒶𝓂 𝓇𝑒𝒶𝓁𝓁𝓎 𝑒𝓍𝒸𝒾𝓉𝑒𝒹 𝓉𝑜 𝒷𝑒 𝓉𝒽𝑒𝓇𝑒 𝒻𝑜𝓇 𝓂𝓎 𝒻𝒾𝓇𝓈𝓉 𝓎𝑒𝒶𝓇!
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Sad, excited, stressed, fearful, full
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Stressed, longing, nostalgic, bored, (kinda) calm
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -15,8 +15,6 @@
  ☆  When I mention my favorite color I say its hex code (couldn't guess that, huh?)
 
  ☆  If I could be an animal that isn't human (yes, humans are animals), I'd be the legend from the ancient Greeks and Egyptians, a Phoenix.
-
- ☆  Waiting to see 💌 her 💌 rn
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
