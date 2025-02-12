@@ -18,10 +18,10 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆    ☆
+☆  You know I hate to say, I told you so. I know I hate to say, but, I TOLD YOU SOOO!!  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  
+☆  Given Up
 
 
 
