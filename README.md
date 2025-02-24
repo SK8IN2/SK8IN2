@@ -18,10 +18,17 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  C_t, C_t, C_t me up and F, F, F ME UP!!  ☆
+☆  Is it enough to love, is it enough to breath?  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Custer
+☆  Disco (Sped up, this dance is so fun)
+
+𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
+☆  OK Computer
+
+𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
+☆  indubitably
+
 
 
 
