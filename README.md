@@ -18,19 +18,19 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Is it enough to love, is it enough to breath?  ☆
+☆  The others were all brought up to be polite. I wasn't. ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Disco (Sped up, this dance is so fun)
+☆  Electioneering
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  OK Computer
+☆  We Are Not Your Kind
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  indubitably
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  https://olliveen.neocities.org/  ☆
+☆  https://emocowboy.neocities.org/  ☆
 
 
 
