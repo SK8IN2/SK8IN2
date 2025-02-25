@@ -21,7 +21,7 @@
 ☆  The others were all brought up to be polite. I wasn't. ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Electioneering
+☆  Eyeless
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  We Are Not Your Kind
