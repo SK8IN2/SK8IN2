@@ -6,7 +6,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), 𝒶𝓃𝒹 𝒶𝓂 𝓇𝑒𝒶𝓁𝓁𝓎 𝑒𝓍𝒸𝒾𝓉𝑒𝒹 𝓉𝑜 𝒷𝑒 𝓉𝒽𝑒𝓇𝑒 𝒻𝑜𝓇 𝓂𝓎 𝒻𝒾𝓇𝓈𝓉 𝓎𝑒𝒶𝓇!
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Proud, longing, bored, lonely, content, excited, angry
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: PISSED. Anxious, scared, tired, PISSED AGAIN. I LITERALLY WANT TO SCREAM.
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
