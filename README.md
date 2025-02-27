@@ -30,7 +30,7 @@
 ☆  indubitably
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  https://emocowboy.neocities.org/  ☆
+☆  https://xxstephsroomxx.neocities.org/  ☆
 
 
 
