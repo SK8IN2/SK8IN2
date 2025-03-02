@@ -18,7 +18,7 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  We accept the love we think we deserve ☆
+☆  So if you love me, let me go. And run away before I know. My heart is just too dark to care. I can't destroy what isn't there. Deliver me into my fate - If I'm alone I cannot hate I don't deserve to have you... My smile was taken long ago If I can change I hope I never know  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  Eyeless
@@ -32,7 +32,8 @@
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  https://xxstephsroomxx.neocities.org/  ☆
 
-
+𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
+☆  We accept the love we think we deserve  ☆
 
 
 P.S Go to "Repositories", "asdfgh", then "issues" for (almost) daily comments from me
