@@ -30,7 +30,7 @@
 ☆  indubitably
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  https://xxstephsroomxx.neocities.org/  ☆
+☆  https://petrapixel.neocities.org/  ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  We accept the love we think we deserve  ☆
