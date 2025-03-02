@@ -18,7 +18,7 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  The others were all brought up to be polite. I wasn't. ☆
+☆  We accept the love we think we deserve ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  Eyeless
