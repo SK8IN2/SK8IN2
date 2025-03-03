@@ -21,14 +21,13 @@
 ☆  Sometimes I just feel like screaming at myself  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Not my problem (sped up)
+☆  From the start
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  OK Computer
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  indubitably
-
+☆  acrimony
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  https://petrapixel.neocities.org/  ☆
 
