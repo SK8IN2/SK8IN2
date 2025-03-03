@@ -18,10 +18,10 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  So if you love me, let me go. And run away before I know. My heart is just too dark to care. I can't destroy what isn't there. Deliver me into my fate - If I'm alone I cannot hate I don't deserve to have you... My smile was taken long ago If I can change I hope I never know  ☆
+☆  Sometimes I just feel like screaming at myself  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Eyeless
+☆  Not my problem (sped up)
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  OK Computer
