@@ -1,13 +1,3 @@
-/* Background Colors: */
-    --background-color: #a47dab;
-    --content-background-color: #fdeaf3;
-    --sidebar-background-color: #ffffff;
-  
-    /* Text Colors: */
-    --text-color: #9d469f;
-    --sidebar-text-color: #8533ce;
-    --link-color: #723373;
-    --link-color-hover: #d50bb1;
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
