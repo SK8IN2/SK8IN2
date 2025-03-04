@@ -1,3 +1,14 @@
+/* Background Colors: */
+    --background-color: #a47dab;
+    --content-background-color: #fdeaf3;
+    --sidebar-background-color: #ffffff;
+  
+    /* Text Colors: */
+    --text-color: #9d469f;
+    --sidebar-text-color: #8533ce;
+    --link-color: #723373;
+    --link-color-hover: #d50bb1;
+
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
