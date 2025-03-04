@@ -33,7 +33,13 @@
 ☆  https://petrapixel.neocities.org/  ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  We accept the love we think we deserve  ☆
+We accept the love we think we deserve  ☆
+
+𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
+☆ kittenguts (KITTY)
+
+☆ dannytehe (danny)
+
 
 
 P.S Go to "Repositories", "asdfgh", then "issues" for (almost) daily comments from me
