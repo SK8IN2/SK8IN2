@@ -44,7 +44,6 @@ We accept the love we think we deserve  ☆
 
 
 
-P.S Go to "Repositories", "asdfgh", then "issues" for (almost) daily comments from me
 
  ![3490187znfg7u3yiq](https://github.com/user-attachments/assets/251c0541-04a9-4f55-8728-dcf8e9c7137b) ![2d561663f99edd1d7b22e16203a9d5067ceeb1c2](https://github.com/user-attachments/assets/ca948196-917d-4985-ab38-086d08277b8e) ![3490195h7ia6zfs38](https://github.com/user-attachments/assets/9042194a-b27a-4f03-86f4-ed7788a6cb7c) ![weird-al](https://github.com/user-attachments/assets/d1c059ba-c02f-450e-b4fc-eab8d6c22aa7) 
 ![7d799a67](https://github.com/user-attachments/assets/90ed3c68-4214-4b4a-93e9-7235eef6b4e6) ![e3dffa8f](https://github.com/user-attachments/assets/85b50645-b3e6-4c78-89d7-aa94553fa50c)
