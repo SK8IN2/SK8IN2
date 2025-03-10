@@ -7,7 +7,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), 𝒶𝓃𝒹 𝒶𝓂 𝓇𝑒𝒶𝓁𝓁𝓎 𝑒𝓍𝒸𝒾𝓉𝑒𝒹 𝓉𝑜 𝒷𝑒 𝓉𝒽𝑒𝓇𝑒 𝒻𝑜𝓇 𝓂𝓎 𝒻𝒾𝓇𝓈𝓉 𝓎𝑒𝒶𝓇!
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Excited, frustrated, bored, longing, glad, fearful, nostalgic, sad
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Happy, longing, nostalgic, excited, bored, determined, free
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -19,22 +19,24 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Sometimes I just feel like screaming at myself  ☆
+☆  Melting like an ice cream when you smile  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  From the start
+☆  There She Goes
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  OK Computer
+☆  Clear Hearts Grey Flowers
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  acrimony
+☆  Beggining.
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  https://petrapixel.neocities.org/  ☆
+☆  https://foxyjay.neocities.org/  ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-We accept the love we think we deserve  ☆
+I don't want people to try to figure out
+Why I am the way I am.
+Because I don't understand yet. ☆
 
 𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
 
