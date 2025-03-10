@@ -34,9 +34,7 @@
 ☆  https://foxyjay.neocities.org/  ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-I don't want people to try to figure out
-Why I am the way I am.
-Because I don't understand yet. ☆
+“I don’t want people to be worried about me. There’s nothing to worry about. I don’t want people to try and understand why I’m the way I am, because I should be the first person to understand that. And I don’t understand yet. I don’t want people to interfere. I don’t want people in my head, picking out this and that, permanently picking up the broken pieces of me.” ☆
 
 𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
 
