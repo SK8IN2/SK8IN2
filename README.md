@@ -30,7 +30,7 @@
 ☆  Clear Hearts Grey Flowers
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  정/情 (jeong): An attachment felt between two people. Whether they leave each other's lives, are still close, or hate each other, there will always be a special place in their hearts with love for that person. The two are always connected, even when they think the other's forgotten about them.
+☆  정/情 (jeong): An attachment felt between two people. Whether they leave each other's lives, are still close, or hate each other, there will always be a special place in their hearts with love for that person. The two are always connected, an unbreakable bond.
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  https://foxyjay.neocities.org/  ☆
