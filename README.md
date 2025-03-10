@@ -47,6 +47,8 @@
 ☆ Ace091010 (Ace)
 
 Wanna reach out to me? Email me @jmouton29@pcstudents.us
+I check very frequently so don't be afraid to send anything! (Just pls don't say stuf that'll get flagged, censor if needed lol)
+
 
 
 
