@@ -7,7 +7,7 @@
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
  
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
-𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), 𝒶𝓃𝒹 𝒶𝓂 𝓇𝑒𝒶𝓁𝓁𝓎 𝑒𝓍𝒸𝒾𝓉𝑒𝒹 𝓉𝑜 𝒷𝑒 𝓉𝒽𝑒𝓇𝑒 𝒻𝑜𝓇 𝓂𝓎 𝒻𝒾𝓇𝓈𝓉 𝓎𝑒𝒶𝓇!
+♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if you asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
 
 𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Happy, longing, nostalgic, excited, bored, determined, free
 
