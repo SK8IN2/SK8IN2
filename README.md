@@ -46,7 +46,7 @@
 
 ☆ Ace091010 (Ace)
 
-Yes, Linkin and Slip are both part of the "Nu Metal" genre. Not punk, not metal. Thank you
+Yes, Linkin, Limp, and Slip are all part of the "Nu Metal" genre. Not punk, not emo, not metal. Thank you
 
 
 
