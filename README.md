@@ -1,7 +1,7 @@
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
-𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/10/25
+𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/11/25
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
@@ -21,22 +21,22 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  ayyyyy  ☆
+☆    ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  There She Goes
+☆  
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Clear Hearts Grey Flowers
+☆  
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  정/情 (jeong): An attachment felt between two people. Whether they leave each other's lives, are still close, or hate each other, there will always be a special place in their hearts with love for that person. The two are always connected, an unbreakable bond.
 
 𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  https://foxyjay.neocities.org/  ☆
+☆    ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-“There comes a point, though, when you can't keep looking after other people any more. You have to start looking after yourself.” ☆
+
 
 𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
 
