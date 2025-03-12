@@ -9,7 +9,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 ♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if you asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: 
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Numb
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -21,13 +21,13 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆    ☆
+☆  No matter what happens now You shouldn’t be afraid Because I know today has been the most perfect day I’ve ever seen.  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  
+☆  Daddy (KoRn)
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  
+☆  Follow the Leader
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  정/情 (jeong): An attachment felt between two people. Whether they leave each other's lives, are still close, or hate each other, there will always be a special place in their hearts with love for that person. The two are always connected, an unbreakable bond.
@@ -36,7 +36,7 @@
 ☆    ☆
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-
+“I may never let go of my wrath, my anger, but I will always have the last laugh."
 
 𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
 
