@@ -9,7 +9,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 ♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if I had asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Content, fulfilled, excited, exhilarated, anticipating, eager, loving, alive
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Excited, eager, longing, anticipating, impatient, happy, content
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -21,22 +21,19 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  No matter what happens now You shouldn’t be afraid Because I know today has been the most perfect day I’ve ever seen.  ☆
+☆  "One of these mornings you're gonna rise up singing, you're gonna spread your wings, child, and take to the sky"  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Break Stuff
+☆  Boys Don't Cry
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  Follow the Leader
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  정/情 (jeong): An attachment felt between two people. Whether they leave each other's lives, are still close, or hate each other, there will always be a special place in their hearts with love for that person. The two are always connected, an unbreakable bond.
-
-𝓢𝓲𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆    ☆
+☆  Auspicious: promising success; propitious; opportune; favorable
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-"You laugh at me because I'm different, I laugh at you because you're all the same.” Jonathon Davis
+"Never sell out. Never compromise your values."
 
 𝓖𝓸 𝓕𝓸𝓵𝓵𝓸𝔀!:
 
@@ -45,9 +42,6 @@
 ☆ dannytehe (danny)
 
 ☆ Ace091010 (Ace)
-
-Yes, Linkin, Limp, and Slip are all part of the "Nu Metal" genre. Not punk, not emo, not metal. Thank you
-
 
 
 
