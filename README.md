@@ -27,7 +27,7 @@
 ☆  Boys Don't Cry
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Follow the Leader
+☆  Meat Is Murder
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  Auspicious: promising success; propitious; opportune; favorable
