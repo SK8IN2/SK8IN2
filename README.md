@@ -1,7 +1,7 @@
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
-𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/15/25
+𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/18/25
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
@@ -9,7 +9,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 ♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if I had asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Excited, eager, longing, anticipating, impatient, happy, content
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Fulfilled, excited, eager, upset, annoyed, interested, aware
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -21,16 +21,16 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "One of these mornings you're gonna rise up singing, you're gonna spread your wings, child, and take to the sky"  ☆
+☆  "It's all about the he said, she said bullsh"  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Boys Don't Cry
+☆  Surfin' Bird
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  Meat Is Murder
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Auspicious: promising success; propitious; opportune; favorable
+☆  cramp: painful involuntary contraction of a muscle or muscles, typically caused by fatigue or strain. (google dictionary)
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 "Never sell out. Never compromise your values."
