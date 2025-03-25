@@ -27,7 +27,7 @@
 ☆  It's Oh So Quiet
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  The Kitchen Tapes
+☆  A Boy Named Goo
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆  rejuvinate: to make young or youthful again (Google Dictionary)
