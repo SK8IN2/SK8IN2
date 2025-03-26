@@ -1,7 +1,7 @@
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
-𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/25/25
+𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/26/25
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
@@ -21,19 +21,19 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "Here is the church and here is the steeple. We sure are cute for 2 ugly people"  ☆
+☆  "I don't see what anyone can see, in anyone else..but you."  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  It's Oh So Quiet
+☆  Tubthumping
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  A Boy Named Goo
+☆  Doolittle
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  rejuvinate: to make young or youthful again (Google Dictionary)
+☆  Enthrall: capture the fascinated attention of. (Google Dictiionary)
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-“You like to act as if you care about nothing and if you carry on like that then you’re going to drown in the abyss you have imagined for yourself.”
+“Each time we exhale, the world ends; when we inhale, there can be, if we allow it, rebirth and spiritual renewal. It all transpires inside of us. In our consciousness, in our hearts. All the time.”
 
 
 
