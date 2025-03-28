@@ -32,7 +32,7 @@
 ☆  Doolittle
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Enthrall: capture the fascinated attention of. (Google Dictiionary)
+☆  Enthrall: capture the fascinated attention of. (Google Dictionary)
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 “Each time we exhale, the world ends; when we inhale, there can be, if we allow it, rebirth and spiritual renewal. It all transpires inside of us. In our consciousness, in our hearts. All the time.”
