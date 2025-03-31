@@ -1,7 +1,7 @@
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
-𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/28/25
+𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/30/25
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
@@ -11,7 +11,7 @@
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
 ♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if I had asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Loving, anxious, anticipating, eager, loved
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Bothered, disturbed, excited, nostalgic, grateful, anticipating
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -23,19 +23,19 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "I don't see what anyone can see, in anyone else..but you."  ☆
+☆  "I'm not sure what I'm supposed to do, but I'm not gonna let them win"  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Tubthumping
+☆  Hold on Till May
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Doolittle
+☆  White Pony
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Enthrall: capture the fascinated attention of. (Google Dictionary)
+☆  Nostalgia: a sentimental longing or wistful affection for the past, typically for a period or place with happy personal associations. (Oxford Languages)
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-“Each time we exhale, the world ends; when we inhale, there can be, if we allow it, rebirth and spiritual renewal. It all transpires inside of us. In our consciousness, in our hearts. All the time.”
+“And at that time, change was the one thing out to get me. The thing to destroy my entire life. My world at that moment. But when you let go of that rose, growing with its thorns peircing in your hands when you tried to hold on, you find a cephalotus. Its beauty isn't usually seen from the outside, you have to look further than the atoms that form it to truly see its story. Change was the one thing I thought would ruin me. Yet I look back and realize that the pain I felt during those crying sessions was pure beauty.”
 
 
 
