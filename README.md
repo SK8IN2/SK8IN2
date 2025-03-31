@@ -35,7 +35,7 @@
 ☆  Nostalgia: a sentimental longing or wistful affection for the past, typically for a period or place with happy personal associations. (Oxford Languages)
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-“And at that time, change was the one thing out to get me. The thing to destroy my entire life. My world at that moment. But when you let go of that rose, growing with its thorns peircing in your hands when you tried to hold on, you find a cephalotus. Its beauty isn't usually seen from the outside, you have to look further than the atoms that form it to truly see its story. Change was the one thing I thought would ruin me. Yet I look back and realize that the pain I felt during those crying sessions was pure beauty.”
+“And at that time, change was the one thing out to get me. The thing to destroy my entire life. My world at that moment. But when you let go of that rose, growing with its thorns peircing in your hands when you tried to hold on, you find a cephalotus. Its beauty isn't usually seen from the outside, you have to look further than the atoms that form it to truly see its story. Change was the one thing I thought would ruin me. Yet I look back and realize that the pain I felt during those crying sessions was nothing but the pure beauty I needed to see.”
 
 
 
