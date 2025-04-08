@@ -1,7 +1,7 @@
 
 ## ⋆  𝐻𝑒𝓎, 𝐼'𝓂 𝒲𝒾𝓁𝓁𝑜𝓌!  ⋆
 
-𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 3/30/25
+𝓣𝓱𝓮 𝓓𝓪𝓽𝓮 𝓲𝓼: 4/8/2025
 
 ![0UNAXwj](https://github.com/user-attachments/assets/5a07fef7-a3be-420b-82c6-0825f9de9496) ![56](https://github.com/user-attachments/assets/95221f8c-8715-46ea-a93e-9ed67126cbae)
 ![0275-stressed](https://github.com/user-attachments/assets/bf39e643-fdc8-4f36-a2c9-624f72bc3e55) ![c108fad2](https://github.com/user-attachments/assets/34c576be-fc09-465b-80bb-19872c4b95d7) ![a17cfb0b](https://github.com/user-attachments/assets/4786bc55-1fca-4211-9f34-adf45577c6a3)
@@ -23,19 +23,19 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "I'm not sure what I'm supposed to do, but I'm not gonna let them win"  ☆
+☆  "SAY IT AIN'T SO - I WILL NOT GO. TURN THE LIGHTS OFF - CARRY ME HOME"  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Hold on Till May
+☆  Breathe (By Taproot)
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  White Pony
+☆  Please Remain Seeded
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Nostalgia: a sentimental longing or wistful affection for the past, typically for a period or place with happy personal associations. (Oxford Languages)
+☆ Jalousy: The act of feeling or showing envy of someone or their achievements and advantages.
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-“And at that time, change was the one thing out to get me. The thing to destroy my entire life. My world at that moment. But when you let go of that rose, growing with its thorns peircing in your hands when you tried to hold on, you find a cephalotus. Its beauty isn't usually seen from the outside, you have to look further than the atoms that form it to truly see its story. Change was the one thing I thought would ruin me. Yet I look back and realize that the pain I felt during those crying sessions was nothing but the pure beauty I needed to see.”
+“I would much rather be the obnoxious feminist girl than be complicit in my own dehumanization.”
 
 
 
