@@ -32,7 +32,7 @@
 ☆  Please Remain Seeded
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆ Jalousy: The act of feeling or showing envy of someone or their achievements and advantages.
+☆ Jealousy: The act of feeling or showing envy of someone or their achievements and advantages.
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 “I would much rather be the obnoxious feminist girl than be complicit in my own dehumanization.”
