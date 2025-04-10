@@ -9,9 +9,9 @@
 *Go to repositories, asdfgh, issues, then Life Updates*
  
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
-♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and honestly, if I had asked myself a year ago what I thought would happen, I would have had a completely different story. I never knew FTC would change me, but it really has. Thank you to the person who influenced me to get into STEM, I am so grateful for you. You've changed the way I see this world now. ♥
+♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and am proud to say that I am a learning designer, social media manager, learning driver, and more! Though this season is finished, I am not. Ask me any questions you'd like! ♥
 
-𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Bothered, disturbed, excited, nostalgic, grateful, anticipating
+𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Excited, stressed, anxious, content, loved
 
 🐉𝓢𝓸𝓶𝓮 𝓯𝓪𝓬𝓽𝓼 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮🐉:
 
@@ -23,16 +23,16 @@
 
 
 𝓛𝔂𝓻𝓲𝓬 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  "SAY IT AIN'T SO - I WILL NOT GO. TURN THE LIGHTS OFF - CARRY ME HOME"  ☆
+☆  ""  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Breathe (By Taproot)
+☆  Happy Together - Simple Plan (my 5th grade nostalgia)
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Please Remain Seeded
+☆  Babysitters On Acid
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆ Jealousy: The act of feeling or showing envy of someone or their achievements and advantages.
+☆ Loud: producing or capable of producing much noise; easily audible.
 
 𝓠𝓾𝓸𝓽𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 “I would much rather be the obnoxious feminist girl than be complicit in my own dehumanization.”
