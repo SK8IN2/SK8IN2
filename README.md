@@ -9,7 +9,7 @@
 *Go to repositories, asdfgh, issues, then Life Updates*
  
 🩵 𝑀𝓎 𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝒶𝓇𝑒 𝒮𝒽𝑒/𝒯𝒽𝑒𝓎,
-♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and am proud to say that I am a learning designer, social media manager, learning driver, and more! Though this season is finished, I am not. Ask me any questions you'd like! ♥
+♥ 𝐼 𝒶𝓂 𝓅𝒶𝓇𝓉 𝑜𝒻 𝟣𝟢𝟨𝟫𝟧 𝑀𝒾𝓃𝑒𝓇𝓋𝒶 (𝐹𝒯𝒞), and am proud to say that I am a learning designer, social media manager, learning driver, and more! Though this season is finished, I am not. Ask me any questions you'd like! (Go to the issue Q&A!) ♥
 
 𝓒𝓾𝓻𝓻𝓮𝓷𝓽 𝓜𝓸𝓸𝓭/𝓼: Excited, stressed, anxious, content, loved
 
