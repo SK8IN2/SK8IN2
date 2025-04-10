@@ -26,10 +26,10 @@
 ☆  ""  ☆
 
 𝓢𝓸𝓷𝓰 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Happy Together - Simple Plan (my 5th grade nostalgia)
+☆  Happy Together - Simple Plan (I'm having 5th grade nostalgia)
 
 𝓐𝓵𝓫𝓾𝓶 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
-☆  Babysitters On Acid
+☆  Babysitters On Acid (Nostalgia once again)
 
 𝓦𝓸𝓻𝓭 𝓸𝓯 𝓽𝓱𝓮 𝓓𝓪𝔂:
 ☆ Loud: producing or capable of producing much noise; easily audible.
